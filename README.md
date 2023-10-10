@@ -4,6 +4,4 @@
 - 💞️ I’m looking to collaborate on fnaf
 - 📫 How to reach me: Freddy Fazbear Pizzaria
 
-<!---
 ATrocidade/ATrocidade is a Freddy Fazbear.
---->
