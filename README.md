@@ -5,3 +5,5 @@
 - 📫 How to reach me: Freddy Fazbear Pizzaria
 
 ATrocidade/ATrocidade is a Freddy Fazbear.
+
+![image](https://github.com/ATrocidade/ATrocidade/assets/147403905/24f4b2da-b1d3-462d-98af-11fec88b74e9)
